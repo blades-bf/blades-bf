@@ -12,7 +12,7 @@
  ![](https://files.catbox.moe/yy3gcr.png)
  ![](https://64.media.tumblr.com/624b6694328380b7bc35dba83c81cf27/c6ded6d0b081f327-58/s1280x1920/d17922d48641c3f3f733d811fbdef88fa6641d90.gif)
  
- ![](https://64.media.tumblr.com/898dd259b5bfe749b37fb2961204a5b6/346ba69c2feb4339-7b/s75x75_c1/9df7d1d616070c446fbca32a1f4b41e6308b5307.gif) [patreon](https://www.patreon.com/xingyue/about) ![](https://64.media.tumblr.com/de3ddff3a39ad981c1766da60dac810f/695f433020d68714-8b/s75x75_c1/24f2883250ca9c738a220ed051b44a24ffcb1130.gif) [rentry](https://rentry.co/xingyueee)
+ ![](https://64.media.tumblr.com/898dd259b5bfe749b37fb2961204a5b6/346ba69c2feb4339-7b/s75x75_c1/9df7d1d616070c446fbca32a1f4b41e6308b5307.gif) [strawpage](https://blades-bf.straw.page/)
  
  ![](https://64.media.tumblr.com/876ba7ab2f5b7f776e2799ed103ecf4d/035ab0bcb0979d85-b0/s500x750/ae395b6dd6d1f17fdc63dca23b881dbb4c421f90.pnj)
  
